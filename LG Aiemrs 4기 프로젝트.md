@@ -1,3 +1,6 @@
+![Pasted image 20240310050504](https://github.com/LWH4Data/Obsidian/assets/132273363/caac9eeb-ae38-452e-9d75-8be9ea5b3d10)
+
+
 
 들어가기 앞서 처음 진행해본 공모전이었음에도 불구하고 너무 좋은 팀원들을 많나 많은 경험을 쌓고 공부할 수 있었음 팀원 분들과 이런 프로그램을 진행해준 LG사에도 정말 감사했습니다.
 
